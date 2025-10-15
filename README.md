@@ -1,4 +1,4 @@
-![github-repository-share_spore](https://github.com/user-attachments/assets/3cc6c3dd-1b88-48bd-9b84-af7f29ff16ea)
+![499531787-3cc6c3dd-1b88-48bd-9b84-af7f29ff16ea](https://github.com/user-attachments/assets/313eda8b-36c9-44d0-aec7-4ec31cf22af2)
 
 ## 👻 Caça aos Bugs 2025 - Desafio 01 - Spore
 
